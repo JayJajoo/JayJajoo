@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/JayJajoo](https://github.com/JayJajoo)
 
-- 📝 I regularly write articles on [Data Science](Data Science)
+- 📝 I regularly write articles on Data Science.
 
 - 💬 Ask me about **Machine Learning, Data Science, Full Stack Development**
 
