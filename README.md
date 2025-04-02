@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **jayjajoo02@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/18Umw7uQhdctJrJ7PFGmFgNlYP01tLyvS/view?usp=sharing](Resume)
+- 📄 Know about my experiences [https://drive.google.com/file/d/18Umw7uQhdctJrJ7PFGmFgNlYP01tLyvS/view?usp=sharing](https://drive.google.com/file/d/18Umw7uQhdctJrJ7PFGmFgNlYP01tLyvS/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
